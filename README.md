@@ -1,4 +1,5 @@
 El rojo más perfecto del año
+
 El servicio municipal de bomberos ya no puede soportar más el desprecio de Pantone al no seleccionar su rojo corporativo para su Color of the year.
 
 Para 2023 no están dispuestos a mandar la enésima solicitud y el ayuntamiento ha aprobado el salto digital del servicio de bomberos: van a lanzar una campaña online. ¡A tope!
